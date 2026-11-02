@@ -1,0 +1,1 @@
+# PokerNotesApp-PrivacyPolicy
